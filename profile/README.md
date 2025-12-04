@@ -1,0 +1,1 @@
+# AMAGOO Deutschland GmbH
